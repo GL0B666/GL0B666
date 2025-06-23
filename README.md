@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning  css,js,and html
 - 💞️ I’m looking to collaborate on machine learning topics, web desgin topics,anything to help me make dope shit 
 art wise
-- 📫 How to reach me, Stersk1 on soundcloud.
+- 📫 How to reach me, instagram lol.
 - 😄 Pronouns: him/them
 - ⚡ Fun fact: I've been into computer science my whole life. I think the concept of it being a sciecne is sometimes
 - lost on the populace.
