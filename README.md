@@ -5,8 +5,7 @@
 art wise
 - 📫 How to reach me, instagram lol.
 - 😄 Pronouns: him/them
-- ⚡ Fun fact: I've been into computer science my whole life. I think the concept of it being a sciecne is sometimes
-- lost on the populace.
+- ⚡ Fun fact: I've been into computer science my whole life. I think the concept of it being a scieence is sometimes lost on the populace.
 
 <!---
 GL0B666/GL0B666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
